@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ambernycole 
-- 🏳️‍⚧️ pronouns she/her
+- :rainbow_flag: 30-something, trans, prnouns: she/her
 
 <!---
 ambernycole/ambernycole is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
